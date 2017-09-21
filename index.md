@@ -5,3 +5,14 @@
 * 来张图片试试
 ![](https://github.com/daidaixiaoxiao/images/raw/master/b.jpg)  
 
+
+             *　 　 *　 　
+　　　　　 *　　 * *　　 *　　
+　　　　　*　★　 *　★　 *　　
+　　　　　 *　　　★　　 *　　
+　　>>>------I love you!　 ---->
+　　　　　　 *　　　　 *　　　
+　　　　　　　 *　★ *　　　
+　　　　　　　　*　 *　　　　　
+　　　　　　　　 * *　　　　　
+　　　　　　　　　*　
