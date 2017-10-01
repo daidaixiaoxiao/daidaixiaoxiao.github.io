@@ -32,19 +32,19 @@
 
 + 美男二货女 
 ![](https://github.com/daidaixiaoxiao/images/raw/master/p1.jpg)  
-</br>被自己帅哭
+被自己帅哭
 
-+ 自我感觉良好的两个人 </br>
++ 自我感觉良好的两个人 
 ![](https://github.com/daidaixiaoxiao/images/raw/master/p2.jpg)  
-</br>为什么我的关注点是后面的那个姑娘
+为什么我的关注点是后面的那个姑娘
 
-+ 真的被自己丑哭 </br>
++ 真的被自己丑哭 
 ![](https://github.com/daidaixiaoxiao/images/raw/master/p4.jpg)  
-</br>放到这里就是勇气
+放到这里就是勇气
 
 + 这是啥
 ![](https://github.com/daidaixiaoxiao/images/raw/master/p5.jpg)  
-</br>内心有一点点得意
+内心有一点点得意 哈
 
 ## 对宝贝的甜言蜜语 ##
 * 当宝贝需要我的时候，我一定尽全力赶到你的身旁，为你吹开身边的阴霾。
