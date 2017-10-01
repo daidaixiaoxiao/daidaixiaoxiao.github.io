@@ -56,7 +56,7 @@
 ![](https://github.com/daidaixiaoxiao/images/raw/master/motou.jpg)  
 好吧，我是比他差一点点帅
 
-* 希望欠着你的一手，一起向前走,那样的话，无论前路如何，对我都是阳光
+* 希望牵着你的一手，一起向前走,那样的话，无论前路如何，对我都是阳光
 ![](https://github.com/daidaixiaoxiao/images/raw/master/shouqianshou.jpg)  
 当然喽，我们是穿着鞋子的
 
