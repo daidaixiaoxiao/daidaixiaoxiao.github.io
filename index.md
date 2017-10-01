@@ -30,7 +30,7 @@
 ![](https://github.com/daidaixiaoxiao/images/raw/master/b.jpg)  
 哎，为了让你美上天，我只能让自己丑点啦，心疼自己。
 
-+ 美男二货女 </br>
++ 美男二货女 
 ![](https://github.com/daidaixiaoxiao/images/raw/master/p1.jpg)  
 </br>被自己帅哭
 
